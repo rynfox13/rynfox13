@@ -19,6 +19,7 @@ I’m passionate about mentorship, continuous learning, and fostering a collabor
 
 - **Email:** kathryn.k.r.fox@gmail.com
 - **LinkedIn:** [linkedin.com/in/rynfox13/](https://www.linkedin.com/in/rynfox13/)
+- **Website:** [rynfox13.github.io](https://rynfox13.github.io/)
 
 ## Fun Facts
 
